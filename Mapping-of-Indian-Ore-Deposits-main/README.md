@@ -1,1 +1,0 @@
-# Mapping-of-Indian-Ore-Deposits
